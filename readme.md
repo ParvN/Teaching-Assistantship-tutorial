@@ -1,1 +1,1 @@
-Tutorial content for PMRF Teaching Assistantship
+Tutorial content for Teaching Assistantship
